@@ -2,7 +2,7 @@
 
 ![image](MarriageI.jpg)
 
-![image](SharedLivinginAmerica.jpg)
+![image](SharedLivingInAmerica.jpg)
 
 ![image](EthicsandExcellence.png)
 
